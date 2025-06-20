@@ -1,1 +1,1 @@
-# sethgleason.github.io/lebronvsjordan
+# sethgleason.github.io
